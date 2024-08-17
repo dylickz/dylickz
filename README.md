@@ -36,4 +36,4 @@ and alot more u can find in my patreon/strawpage <3
 𝟬𝟭:𝟯𝟱
 𝗦𝗘𝗣 .   𝟬𝟯  𝟭𝟵𝟴𝟱
 
-[img src="https://i.pinimg.com/564x/26/4b/b2/264bb2f945d426234a23710d697c7280.jpg"/>](https://i.pinimg.com/564x/26/4b/b2/264bb2f945d426234a23710d697c7280.jpg)
+
