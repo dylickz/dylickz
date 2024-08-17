@@ -36,4 +36,4 @@ and alot more u can find in my patreon/strawpage <3
 𝟬𝟭:𝟯𝟱
 𝗦𝗘𝗣 .   𝟬𝟯  𝟭𝟵𝟴𝟱
 
-img src="[[https://i1.sndcdn.com/avatars-VPe8pbcwqUQq95yx-8KV1Uw-t240x240.jpg](https://i.pinimg.com/564x/66/ea/6d/66ea6d6884b681b2c7f14913f0a02058.jpg](https://i.pinimg.com/564x/97/00/85/97008539656945efa7424fa89f84ef28.jpg))](https://media.discordapp.net/attachments/1229364376574623756/1274453968751296552/83236726348757cc1ecc8fea04f57114.png?ex=66c24f40&is=66c0fdc0&hm=39712f57274bc2bfc428db27b394f35dfa95830972316f64ecc8ec72f470bf22&=&format=webp&quality=lossless&width=843&height=397)"/>
+[img src="https://i.pinimg.com/564x/26/4b/b2/264bb2f945d426234a23710d697c7280.jpg"/>](https://i.pinimg.com/564x/26/4b/b2/264bb2f945d426234a23710d697c7280.jpg)
