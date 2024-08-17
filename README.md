@@ -7,7 +7,7 @@
 
 heres where u can go to find out more stuff abt me! 
 https://infrared.straw.page/
-patreon.com/user?u=66202995
+https://patreon.com/user?u=66202995
 
 -
 
