@@ -1,39 +1,9 @@
-- loading...
-- ︶꒷꒦︶🗝 ︶꒦꒷︶
-- COMPLETE! ꍈ
+![Untitled1_20240904184110](https://github.com/user-attachments/assets/4baaa480-f4ce-4732-a247-619525cbfc38)
+![Untitled3_20240904184647](https://github.com/user-attachments/assets/876073f8-b381-4cfd-95ce-544bc655145d)
+![Untitled2_20240904184210](https://github.com/user-attachments/assets/5881cb60-d854-4fed-96ef-9fcd0cdf6763)
+![Untitled3_2024090
+![Untitled3_20240904184900](https://github.com/user-attachments/assets/01d1c1d3-de27-4ad5-bfac-42aa31dbd107)
+4184834](https://github.com/user-attachments/assets/3b096456-9bf4-4fc9-a346-37720d80e7d2)
 
-<img src="https://media.discordapp.net/attachments/1229364376574623756/1274453935775682570/66ea6d6884b681b2c7f14913f0a02058.png?ex=66c24f38&is=66c0fdb8&hm=e293c967565d5ec861e7417077c030da6c1b3abfa079529a3d35927d4b4a3fad&=&format=webp&quality=lossless&width=844&height=475"/>
-
-
-heres where u can go to find out more stuff abt me! 
 https://infrared.straw.page/
 https://patreon.com/user?u=66202995
-
--
-
-my discord is private. dm me if ur a friend for it ^_^
-
-- Hi! welcome to my profile. im dylickz/sha/infrared.
-- i go by a few names but i dont mind either, im more formally known as infrared ^_^
-
-<img src="[https://i1.sndcdn.com/avatars-VPe8pbcwqUQq95yx-8KV1Uw-t240x240.jpg](https://i.pinimg.com/564x/66/ea/6d/66ea6d6884b681b2c7f14913f0a02058.jpg)"/>
-
-
-- ︻デ═一
-
-- heres my interests ;;
-- 𝗣𝗟𝗔𝗬▶                             𝗩𝗛𝗦
-
-ꐑ﹒Picos school
-madness combat ; -
-ᨓ﹒e𓂅 call of duty ; modern warfare and advanced warfare (newer games)
-、eᨓ object shows
-azumanga daioh ! `
- ⚞⚟﹒⌘ John doe (both roblox and the sim)
-HEAVY on dave and bambi ✿ ;
-and alot more u can find in my patreon/strawpage <3
-
-𝟬𝟭:𝟯𝟱
-𝗦𝗘𝗣 .   𝟬𝟯  𝟭𝟵𝟴𝟱
-
-
