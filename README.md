@@ -4,7 +4,9 @@
 
 
 <p>i am objectum. I have an platonic attraction to robots and tech in general like wires and pc.. im a tech nerd (idont study it.) :3 if u dont like it just block!! ^_^<p>
+<p></p>
 <p>jimmy fans, kins, etc DONT INTERACT! (both mouthwashing and msi)<p>
 
 ![8a023862f70d7f185e6520261049bd6f](https://github.com/user-attachments/assets/7ce0fe4d-6f83-4925-a026-844430ac2229)
-![3f0e13c4](https://github.com/user-attachments/assets/2c51143b-60fe-4fe9-ac47-058f9cb38469)
+
+<p>![3f0e13c4](https://github.com/user-attachments/assets/2c51143b-60fe-4fe9-ac47-058f9cb38469)<p>
