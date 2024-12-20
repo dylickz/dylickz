@@ -1,5 +1,8 @@
-<p>my mental health state is rapidly deteriorating please be careful.<p>
+<p>I have graphic humor that involves nsfw alot so please let me knowo if ur uncomfy!<p>
+![e4b8c783](https://github.com/user-attachments/assets/6c0a5976-5870-4d48-b4e4-f4487b1c4292)
 
-<p>i tend to distance myself. alot. i get uncomfortable alot at times, this is all natural idk y i dont like it.<p>
-<p>jimmy supporters (mouthwashing), DO NOT INTERACT i will kilyu<p>
+<p>i am objectum. I have an platonic attraction to robots :3 if u dont like it just block!! ^_^<p>
+<p>jimmy fans, kins, etc DONT INTERACT! (both mouthwashing and msi)<p>
 
+![8a023862f70d7f185e6520261049bd6f](https://github.com/user-attachments/assets/7ce0fe4d-6f83-4925-a026-844430ac2229)
+![3f0e13c4](https://github.com/user-attachments/assets/2c51143b-60fe-4fe9-ac47-058f9cb38469)
