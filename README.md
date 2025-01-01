@@ -13,3 +13,6 @@
 ![3f0e13c4](https://github.com/user-attachments/assets/2c51143b-60fe-4fe9-ac47-058f9cb38469)
 
 <p>BTW!! important but i have to leave and rejoin every 15 mins since i was caught using an autoclicker they make it to where it kicks me even if i move :(</p>
+<p></p>
+
+<p> My current fixations are madness combat, mouthwashing, and HEAVY on ultrakill!! please come sit / int with me if you are in these!!! i dont bite !!! prays and begs </p>
