@@ -1,4 +1,5 @@
 <p>I have graphic humor that involves nsfw alot so please let me know if ur uncomfy!<p>
+<p> DO MY SOCIAL EXPERIMENT AND CONFESS ON THE LAST LINK IN MY ACCOUNT! </p>
 
 ![e4b8c783](https://github.com/user-attachments/assets/3a7ed309-3f9e-4423-bdbf-ae56b773f587)
 
