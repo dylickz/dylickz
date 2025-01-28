@@ -13,7 +13,8 @@ Respect my boundaries, Please.
 
 <p>(more info can be found on my strawpage.)</p>
 
-
+# also dont bother addin' me if you dont talk to me + if i have to make the first move all the time
+<p>yeah like i want friends that interact with me umm LOL</p>
 
 
 ![tumblr_90becc82f9d3fec8b87fc086c3e3d2d0_172f37b4_1280](https://github.com/user-attachments/assets/86ea358f-869c-4125-bcb4-b4e1adb233c4)
