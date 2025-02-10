@@ -22,7 +22,4 @@ Respect my boundaries, Please.
 ![tumblr_90becc82f9d3fec8b87fc086c3e3d2d0_172f37b4_1280](https://github.com/user-attachments/assets/86ea358f-869c-4125-bcb4-b4e1adb233c4)
 creds to whoever made everything on my profile.
 
-# ` ONE MORE FINAL NOTE: ,
-![tumblr_90becc82f9d3fec8b87fc086c3e3d2d0_172f37b4_1280](https://github.com/user-attachments/assets/86ea358f-869c-4125-bcb4-b4e1adb233c4)
-# Please do not interact if you support the following:
-@doma2day/welpgobye , @analbonez ! !
+
