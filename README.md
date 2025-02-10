@@ -6,8 +6,10 @@
 
 ![tumblr_90becc82f9d3fec8b87fc086c3e3d2d0_172f37b4_1280](https://github.com/user-attachments/assets/86ea358f-869c-4125-bcb4-b4e1adb233c4)
 
-# ' Do limit your interactions with me if your a system ,
-im not fully understanding and struggle with the concept, no hate to you guys even tho ur all sweet, i just dont want to slip up and say something that might offend you on accident, this doesnt apply to people i already have added .
+# ' ALL of my skins are do not copy, unless you are a close friend and i give you permission. ,
+![Screenshot_2025-02-09_191056](https://github.com/user-attachments/assets/bd3acea5-5b34-409a-ad17-4d626fff7c9c)
+<p> shout-out to my first copycat! ahaha so funny. anyways,,, i ALWAYS have my github attatched, so if u see someone with a similar skin as me but no github, then its not me! id love for anyone that sees them copying to come tell me!</p>
+
 # , Don't talk to me if your under 13 . `
 Respect my boundaries, Please.
 
