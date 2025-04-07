@@ -8,3 +8,5 @@ FOLLOWMY SOCOALS YES @DYLICKZ ON EVERY PLATFORM U CAN THINK OF ok?okwha.
 i also do art but. buttt. i doNOT COLOR MY ART. ihate it urghh. 
 <p> DONT DEAH THRET MT STRAWPAG OK THATS MEAN AND UNSIGMA OK!</p>
 </p>
+
+<p> also im always c+h unkles i hsave it stated inmy name</p>
