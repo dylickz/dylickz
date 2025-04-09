@@ -10,3 +10,6 @@ i also do art but. buttt. i doNOT COLOR MY ART. ihate it urghh.
 </p>
 
 <p> also im always c+h unkles i hsave it stated inmy name</p>
+
+# BYI?!!!HOKYTOOT 
+<p> i maek. alot of kys and fat joke.sso DINT TRYTO CANCEL ME HEED MY WARNING!!!!! i also us.e slurs i #can reclaim YOOOLOOOO andread my strawpage on my rentry fir more. ok?</p>
