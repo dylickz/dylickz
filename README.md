@@ -1,4 +1,4 @@
 
 
 <p align="center">
-⠀collect my pages.
+⠀WILL MAKE THIS ALL CUTESY LATER!!!
