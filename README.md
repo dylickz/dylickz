@@ -16,3 +16,5 @@
 <p> if u identify as a fujoshi, himedanshi, or wtv the fuck falls under that, stay away from me or ill block you, these labels make me very uncomfortable </p>
 <p> yeah and if u sit under the proship tree expect yourself blocked i cant take chances.</p>
 <p> postal fans.. interact with extreme caution.. every time i see postal mentioned its usually bad 💔 nothing personal im just trying to play it safe. this doesnt apply to friends anyways cus i love and fw yall</p>
+
+<p> even tho im on pony town every day and night of the week... im still super shy to interact with people.. (๑﹏๑//) SO SORRY IF I HAVE U ADDED AND I DONT TALK ilike piss my pants trying to talk... if i also follow u its cus i wana b friends but im too shy!!!</p>
