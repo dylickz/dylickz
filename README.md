@@ -18,3 +18,4 @@
 <p> postal fans.. interact with extreme caution.. every time i see postal mentioned its usually bad 💔 nothing personal im just trying to play it safe. this doesnt apply to friends anyways cus i love and fw yall</p>
 
 <p> even tho im on pony town every day and night of the week... im still super shy to interact with people.. (๑﹏๑//) SO SORRY IF I HAVE U ADDED AND I DONT TALK ilike piss my pants trying to talk... if i also follow u its cus i wana b friends but im too shy!!!</p>
+<p> "IRLS" dni i hope you get a hard cold reality check lol 😭</p>
