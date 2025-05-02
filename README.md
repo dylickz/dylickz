@@ -6,7 +6,4 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tleqegpb4lhcogzq6e3rwkleiq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=be2727&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<p> > wake up</p>
-<p> > get sad</p>
-<p> > watch new ragerr, 3FS or rogurt content</p>
-<p> > die peacefully</p>
+<p> in order for u to interact with me u have to make the first move,,, ^_^ i have horrible social anxiety, and yes on a pony game..😭😭<p>
