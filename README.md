@@ -8,4 +8,6 @@
 
 <p> in order for u to interact with me u have to make the first move,,, ^_^ i have horrible social anxiety, and yes on a pony game..😭😭<p>
 
-<p>P.S , stating this before i get jumped, if u see me with a skin of adam or smth ITS CUS IM MOCKING HIM WITH MY OOMF, hes a pedophile who doesnt desrv fans IF U GENUINELY ROMANTICIZE THESE PEOPLED DNI lmfaoo</p>
+<p>finn u pmo. yeah. pmo #fatass</p>
+
+# BUCK STOP GETTING BANNED U LITTLE SHIT
