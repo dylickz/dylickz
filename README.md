@@ -7,3 +7,5 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tleqegpb4lhcogzq6e3rwkleiq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=be2727&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <p> in order for u to interact with me u have to make the first move,,, ^_^ i have horrible social anxiety, and yes on a pony game..😭😭<p>
+
+<p>P.S , stating this before i get jumped, if u see me with a skin of adam or smth ITS CUS IM MOCKING HIM WITH MY OOMF, hes a pedophile who doesnt desrv fans IF U GENUINELY ROMANTICIZE THESE PEOPLED DNI lmfaoo</p>
