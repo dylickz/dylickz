@@ -17,3 +17,5 @@ ______๑♡⁠๑______
 𐙚⭑𓂃────────𓂃⭑𐙚
 
 <p> unfortunately, if your tcc, please try not to interact with me! i dont like people who call killers and murderers "hot", this makes me very uncomfortable! (っ- ‸ - ς) please respect me and ill respect youu!!(ᗒᗣᗕ)՞ </p>
+
+<p> i also freely hide! sorry if ur hid but its for a reason :C</p>
