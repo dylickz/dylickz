@@ -11,3 +11,4 @@
 <p>finn u pmo. yeah. pmo #fatass</p>
 
 # BUCK STOP GETTING BANNED U LITTLE SHIT
+Tcc interact wit extreme caution ion like u guys lwk but im nice abt it
