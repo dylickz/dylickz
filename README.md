@@ -6,6 +6,9 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tleqegpb4lhcogzq6e3rwkleiq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=be2727&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+# commission information here:
+<p> https://commissioninfoo.straw.page/ </p>
+
 ______๑♡⁠๑______
 
 <p> please interact first with me! i am a very shy individual when it comes to making friends. i have a horrible time making the first move! (-‿-") </p>
