@@ -1,16 +1,5 @@
-![IMG_9333](https://github.com/user-attachments/assets/7a0255a2-1dfb-4861-898b-645031a4a2eb)
-
-
-
-
-
-
-
-
-
-
-[<button type="button" onclick="redirect()">atabook</button>](https://dylikz.atabook.org/)
+your all fake i hate you all learn to communicate with someone whos so obviously mentally unwell before they kill theirself
+ 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tleqegpb4lhcogzq6e3rwkleiq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=be2727&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-tired of people leavnig me so dm my discord dylickz1 for proof and shit im tired of being bashed
