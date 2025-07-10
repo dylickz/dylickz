@@ -1,4 +1,6 @@
-I can't trust anyone no more
+I can't trust anyone no more. i dont plan on being this earth anymore. it was nice knowing you all honestly besides the ones that ditched me with no contact.
+<p>i can see how some of my interests and things are weird, but if your uncomfortable FUCKING TELL ME. IM SICK OF LOSING FUCKING FFRIENDS FOR IGNORIGTO CONTACT ME AND TALK IT OUT. YOUR ALL PUSSIES WHO IGNORE A PERSONS FEELINGS. IM VERY OBVIOUSLY MENTALLTY UNWELL BUT ATLEAST LET ME FUCKING RESPOND BEFORE YOU BLOCK ME. im sick of  this shit im fucking cryign typign this, your all fake. i cant trust anyone. literaly donteven talk to me if ur not a friend im done being nice im so fucking done being nice.</p>
+<p>block me all yoou want, but atleast tell me and let me talk before you dump me. im so tired. im really tired. im soppoused to be healing. not getting worse. im so sick of this. you all are horrible people. i hate this fucking place.</p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tleqegpb4lhcogzq6e3rwkleiq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=be2727&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
