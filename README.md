@@ -19,6 +19,10 @@
 
 </div>
 
+<div align="center"
+ 
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tleqegpb4lhcogzq6e3rwkleiq&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&bar_color=f5c7e6&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31tleqegpb4lhcogzq6e3rwkleiq&redirect=true)
+
+ </div>
 
 <img width="1500" height="150" alt="tumblr-a43bf7c1068a4e0351dfd6eb2b5d0234-8fb10b59-2048" src="https://github.com/user-attachments/assets/da1eba0e-05f2-4417-9b7b-e72c115aee5c" />
